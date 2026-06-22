@@ -1,1 +1,1 @@
-Nhan lol dep trai an cuc
+LOl an cuc
